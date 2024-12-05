@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me: e-mail
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: PS5Pro
 
 
 <!---
